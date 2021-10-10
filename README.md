@@ -9,8 +9,6 @@ Credits:
 
 Verts & g0tTr0LLed#0860 they made Verts Hub lol
 
-CheemzZ#5104 & cryptamane#5975 for the free version source
-
 Enviie he cracked Verts
 
 Verts Hub Crack v
